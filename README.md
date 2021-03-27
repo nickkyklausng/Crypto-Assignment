@@ -1,4 +1,4 @@
-# Cryptocurrency Volatility, Future Trends and Social Media Influence
+# Cryptocurrency Volatility, Future Trends and Media Influence
 David, Nick & Milena
 
 # Presumption
